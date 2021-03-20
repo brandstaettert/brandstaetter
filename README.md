@@ -1,2 +1,2 @@
 # brandstaetter
-Prof and person
+Professional work only 
